@@ -16,7 +16,7 @@
 
 ***
 <h5 align="center">
-‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni .  joscarlers/josvic, whatever weird ship you have please dni! if you feel like i wont like it, then just dont tell me about it, or leave! your not welcome around me and ill make that clear. i am blunt.
+‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni .  joscarlers/josvic, also partybeetle, weird ships just.. dont interact. if you feel like i wont like it, then just dont tell me about it, or leave! your not welcome around me and ill make that clear. i am blunt.
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/3kzfkb.png"/>
