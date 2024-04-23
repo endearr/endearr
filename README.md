@@ -11,13 +11,12 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  hello ! ^_^
-add whatever u want here :3
+‎ ‎‎ ‎ ‎  hello hello! greetings!!! iwc at all times, and w2i! im always offtab, so its for the best, im a selective mute! i will not talk at times, or most times! please respect that. i love when greennames interact, i almost always use busy, but if im idle im probably online! c+h is fine, i really dont care what you do to my virtual pony. just dont be weird towards ME! common sense!
 </h5>
 
 ***
 <h5 align="center">
-‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni . (and whatever u want)
+‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni .  joscarlers/josvic, whatever weird ship you have please dni! if you feel like i wont like it, then just dont tell me about it, or leave! your not welcome around me and ill make that clear. i am blunt.
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/3kzfkb.png"/>
