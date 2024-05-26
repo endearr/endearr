@@ -1,5 +1,5 @@
 <h3 align="center">
-<img src="https://64.media.tumblr.com/8e397fab9a41e1f00016917a0867e1b2/408b2d36fe8fb6b1-57/s75x75_c1/fcdca19e3d06e95932570fcb1f7d99a8639cacdd.gif"/> ” You didn't do <i> that </i> much to me ! ! „ <img src="https://64.media.tumblr.com/629f7dfcdbffbc78b582124d4d38e9e3/3c325a77cbf3ea01-17/s75x75_c1/5885c21ece32d9e07d25f41dbb3bcfebed7d5456.gif"   </h3>
+<img src="https://64.media.tumblr.com/1469412deea08e30c5b841ee3948d56d/7f205297149b4ac6-b2/s75x75_c1/90366139e6beb1c89dccef1d2ba2cee57cab5550.gifv"/> ” Your verdict <i> is . . </i> gulity ! ! ! „ <img src="https://64.media.tumblr.com/b91c65fa5dfb2aef24a98c58259f8dae/b7c3f9d01970128e-61/s75x75_c1/29ba991fef0177f0bea76b5a0c6fe162e107db57.gifv"/>
 <p align="center">
 <img src="https://files.catbox.moe/mkf16k.png"/>
 </p>
@@ -33,4 +33,8 @@
 </p>
 
 ***
-. . . creds ; *@meowrette-archived* on tumblr + @aesvic on github *!* :3
+. . . creds ; *@pleasantbrush* on tumblr + @aesvic on github *!* :3
+
+![image](https://github.com/endearr/endearr/assets/150192534/86e9755f-9c48-4b84-9e99-eb2565caff93)
+
+
