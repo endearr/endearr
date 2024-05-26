@@ -35,6 +35,6 @@
 ***
 . . . creds ; *@pleasantbrush* on tumblr + @aesvic on github *!* :3
 
-![image](https://github.com/endearr/endearr/assets/150192534/86e9755f-9c48-4b84-9e99-eb2565caff93)
+
 
 
