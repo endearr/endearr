@@ -1,13 +1,13 @@
 <h3 align="center">
-<img src="https://64.media.tumblr.com/1469412deea08e30c5b841ee3948d56d/7f205297149b4ac6-b2/s75x75_c1/90366139e6beb1c89dccef1d2ba2cee57cab5550.gifv"/> ” Your verdict <i> is . . </i> gulity ! ! ! „ <img src="https://64.media.tumblr.com/b91c65fa5dfb2aef24a98c58259f8dae/b7c3f9d01970128e-61/s75x75_c1/29ba991fef0177f0bea76b5a0c6fe162e107db57.gifv"/>
+<img src="https://64.media.tumblr.com/62101fceca796cb05d7cd6db70820ca0/ec2fe971b0fa2a3b-d5/s75x75_c1/6c1fbc1a51090b555ad6141f2100a52506fb3f1a.gifv"/> ” Couldn't spot <i> that <i> one, eh ? ! !„ <img src="https://64.media.tumblr.com/8ccaa2b2587d7e2aa7fa8851c2ac8a1d/1d6b1fce698460e7-38/s75x75_c1/f1a0581b1b1a501ed6f60141593b536cd9aac11e.webp"/>
 <p align="center">
-<img src="https://files.catbox.moe/mkf16k.png"/>
+<img src="https://files.catbox.moe/mf86gz.png"/>
 </p>
 
 <p align="center">
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/i7etzf.jpg"/>
+<img src="https://files.catbox.moe/qxnxtd.png"/>
 </p>
 
 <h5 align="center">
@@ -19,10 +19,10 @@
 ‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni .  joscarlers/josvic, also partybeetle, weird ships just.. dont interact. if you feel like i wont like it, then just dont tell me about it, or leave! your not welcome around me and ill make that clear. i am blunt.
 </h5>
 <p align="center">
-<img src="https://files.catbox.moe/i7etzf.jpg"/>
+<img src="https://files.catbox.moe/qxnxtd.png"/>
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/xwqbfw.gif"/>
+<img src="https://files.catbox.moe/s45cyy.png"/>
 </p>
 
 
