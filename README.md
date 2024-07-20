@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/whjlcl.png"
     
 <p align="center">
-<img src="https://files.catbox.moe/zb1p3g.gif"/>
+<img src="https://files.catbox.moe/k79tl3.gif"/>
 <img src="https://files.catbox.moe/d6qeks.gif"
 </p>
 
