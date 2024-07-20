@@ -19,15 +19,14 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  wip
+‎ ‎‎ ‎ ‎  dni
 </h5>
-
 
 
 ‎ ‎‎ ‎ ‎ 
 </h5>
 <p align="center">
-<img src="https://files.catbox.moe/qxnxtd.png"/>
+<img src="https://files.catbox.moe/lpf8kk.jpg"/>
 </p>
 
 <div align="center">
@@ -36,10 +35,15 @@
 
 
 
-***
+
 <p align="center">
 <img src="https://files.catbox.moe/ecmow5.png"/> 
-    YAY!! 
+</p>
+
+<h5 align="center"/>
+me! :)
+</h5>
+
 
 
 ***
