@@ -1,22 +1,28 @@
 <h3 align="center">
-<img src="https://64.media.tumblr.com/62101fceca796cb05d7cd6db70820ca0/ec2fe971b0fa2a3b-d5/s75x75_c1/6c1fbc1a51090b555ad6141f2100a52506fb3f1a.gifv"/> ” Couldn't spot <i> that <i> one, eh ? ! !„ <img src="https://64.media.tumblr.com/8ccaa2b2587d7e2aa7fa8851c2ac8a1d/1d6b1fce698460e7-38/s75x75_c1/f1a0581b1b1a501ed6f60141593b536cd9aac11e.webp"/>
+<img src="https://files.catbox.moe/whjlcl.png"
+    
 <p align="center">
-<img src="https://files.catbox.moe/mf86gz.png"/>
-</p>
-
-<p align="center">
-</p>
-<p align="center">
-<img src="https://files.catbox.moe/qxnxtd.png"/>
+<img src="https://files.catbox.moe/zb1p3g.gif"/>
+<img src="https://files.catbox.moe/d6qeks.gif"
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  hello hello! greetings!!! iwc at all times, and w2i! im always offtab, so its for the best, im a selective mute! i will not talk at times, or most times! please respect that. i love when greennames interact, i almost always use busy, but if im idle im probably online! c+h is fine, i really dont care what you do to my virtual pony. just dont be weird towards ME! common sense!
+    about me
 </h5>
 
-***
+<p align="center">
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/vb7whv.png"/>
+</p>
+
 <h5 align="center">
-‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni .  joscarlers/josvic, also partybeetle, weird ships just.. dont interact. if you feel like i wont like it, then just dont tell me about it, or leave! your not welcome around me and ill make that clear. i am blunt.
+‎ ‎‎ ‎ ‎  wip
+</h5>
+
+
+
+‎ ‎‎ ‎ ‎ 
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/qxnxtd.png"/>
