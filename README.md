@@ -3,7 +3,9 @@
     
 <p align="center">
 <img src="https://files.catbox.moe/wimxog.gif"/>
-<img src="https://files.catbox.moe/d6qeks.gif"
+    </p>
+    <p align="center">
+<img src="https://files.catbox.moe/0sq1gr.gif"
 </p>
 
 <h5 align="center">
