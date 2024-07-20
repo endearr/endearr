@@ -1,8 +1,8 @@
 <h3 align="center">
-<img src="https://files.catbox.moe/whjlcl.png"
+<img src="https://files.catbox.moe/7ow3d2.png"/>
     
 <p align="center">
-<img src="https://files.catbox.moe/k79tl3.gif"/>
+<img src="https://files.catbox.moe/wimxog.gif"/>
 <img src="https://files.catbox.moe/d6qeks.gif"
 </p>
 
