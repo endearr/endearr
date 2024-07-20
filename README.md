@@ -30,6 +30,8 @@
 <img src="https://files.catbox.moe/qxnxtd.png"/>
 </p>
 
+<div align="center">
+    
 [![](https://files.catbox.moe/9564qt.gif)](https://x.com/nenemadamlady/status/1809963349397917709)
 
 
