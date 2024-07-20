@@ -12,7 +12,8 @@
 </p>
 
 <h5 align="center">
-    about me
+  please leave a message in my atabook or straw !
+    always whisper to interact im usually offtab! iwc at all times just in general, feel free to int or hide behind me just dont act weird 
 </h5>
 
 <p align="center">
@@ -22,7 +23,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  dni
+‎ ‎‎ ‎ ‎  basic dni, just dont be weird !!
 </h5>
 
 
