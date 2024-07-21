@@ -13,7 +13,7 @@
 
 <h5 align="center">
   please leave a message in my atabook or straw !
-    always whisper to interact im usually offtab! iwc at all times just in general, feel free to int or hide behind me just dont act weird 
+    always whisper to interact im usually offtab! iwc at all times just in general, feel free to int or hide behind me just dont act weird to me
 </h5>
 
 <p align="center">
@@ -23,7 +23,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  basic dni, just dont be weird !!
+‎ ‎‎ ‎ ‎  basic dni, just dont be weird , also irls who are anti recovery
 </h5>
 
 
