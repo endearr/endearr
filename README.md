@@ -12,7 +12,6 @@
 </p>
 
 <h5 align="center">
-  please leave a message in my atabook or straw !
     always whisper to interact im usually offtab!
     feel free to int or hide behind me just dont act weird to me
      happily taken (@orderinthecourt) ! ♡
