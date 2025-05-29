@@ -2,20 +2,20 @@
 <img src="https://files.catbox.moe/7ow3d2.png"/>
     </h3>
     <h3 align="center">
-<img src="https://komarev.com/ghpvc/?username=endearr&label=hii!&color=9B3834"/>
+<img src="https://komarev.com/ghpvc/?username=endearr&label=vistor&color=9B3834"/>
     </h3>
 <p align="center">
-<img src="https://files.catbox.moe/wimxog.gif"/>
+<img src="https://files.catbox.moe/n7nt91.gif"/>
     </p>
     <p align="center">
-<img src="https://files.catbox.moe/0sq1gr.gif"
+<img src="https://files.catbox.moe/zelxpo.png"
 </p>
 
 <h5 align="center">
   please leave a message in my atabook or straw !
-    always whisper to interact im usually offtab! iwc at all times just in general,
+    always whisper to interact im usually offtab!
     feel free to int or hide behind me just dont act weird to me
-     happily taken (@justicedealer) ! ♡
+     happily taken (@orderinthecourt) ! ♡
 </h5>
 <h5 align="center">
 
@@ -41,7 +41,7 @@
 
 <div align="center">
     
-[![](https://files.catbox.moe/9564qt.gif)](https://x.com/nenemadamlady/status/1809963349397917709)
+
 
 <p align="center">
 <img src="https://files.catbox.moe/gnrpx2.png"/>
@@ -53,13 +53,7 @@
 
 
 
-<p align="center">
-<img src="https://files.catbox.moe/ecmow5.png"/> 
-</p>
 
-<h5 align="center"/>
-me! :)
-</h5>
 
 ***
 
