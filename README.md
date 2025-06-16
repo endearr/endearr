@@ -13,7 +13,7 @@
 
 <h5 align="center">
     always whisper to interact im usually offtab!
-    feel free to int or hide behind me just dont act weird to me
+    feel free to int or hide behind me
      happily taken (@orderinthecourt) ! ♡
 </h5>
 <h5 align="center">
@@ -28,7 +28,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  basic dni, just dont be weird , also irls who are anti recovery
+‎ ‎‎ ‎ ‎  basic dni, just dont be weird , ill block freely
 </h5>
 
 
