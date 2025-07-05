@@ -30,7 +30,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , have beef with my partner,  ill block freely  }}$ 
+‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , have beef with my partner (orderinthecourt),  ill block freely  }}$ 
 </h5>
 
 ‎ ‎‎ ‎ ‎ 
