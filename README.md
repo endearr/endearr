@@ -13,7 +13,7 @@
 <p align="center">
     <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-　c+h welcome　-　sign atabook　/　straw}}$ 
  <br>
-    　　<a href="https://baby-saja.atabook.org/">atabook</a>  <a href="https://rentry.org/useIessflesh/">rentry</a>
+    　　<a href="https://baby-saja.atabook.org/">atabook</a>　　　　  <a href="https://rentry.org/useIessflesh/">rentry</a>
      <br> ${\textsf{\color{#9AA6C3}  }}$ 
 <br>
 </p>
