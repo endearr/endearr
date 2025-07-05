@@ -11,10 +11,10 @@
 </p>
 
 <p align="center">
-    <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-　c+h welcome　-　sign atabook　/　straw}}$ 
+    <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-　taken　-　c+h allowed   }}$ 
  <br>
     　　<a href="https://baby-saja.atabook.org/">atabook</a>　　　<a href="https://akchi.straw.page/">strawpage</a>　　　<a href="https://rentry.org/useIessflesh/">rentry</a>
-     <br> ${\textsf{\color{#9AA6C3}  interactions always welcome !  }}$ 
+     <br> ${\textsf{\color{#9AA6C3}  interactions always welcome , id love you to look at these! !  }}$ 
 <br>
 </p>
 
@@ -30,7 +30,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , ill block freely  }}$ 
+‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , have beef with my partner,  ill block freely  }}$ 
 </h5>
 
 ‎ ‎‎ ‎ ‎ 
