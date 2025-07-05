@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-    <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-    c+h welcome　-　sign atabook　/　straw}}$ 
+    <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-　c+h welcome　-　sign atabook　/　straw}}$ 
  <br>
      happily taken (@orderinthecourt) ! ♡
 </p>
