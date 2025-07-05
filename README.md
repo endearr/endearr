@@ -11,8 +11,7 @@
 </p>
 
 <p align="center">
-   <br> ${\textsf{\color{#9AA6C3}
-    always whisper to interact im usually offtab!
+   <br> ${\textsf{\color{#9AA6C3}always whisper to interact im usually offtab!
     feel free to int or hide behind me
      happily taken (@orderinthecourt) ! ♡
 </p>
