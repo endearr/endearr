@@ -10,12 +10,12 @@
     <p align="center">
 </p>
 
-<h5 align="center">
+<p align="center">
    <br> ${\textsf{\color{#9AA6C3}
     always whisper to interact im usually offtab!
     feel free to int or hide behind me
      happily taken (@orderinthecourt) ! ♡
-</h5>
+</p>
 
 <h5 align="center">
 
