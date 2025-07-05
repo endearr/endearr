@@ -30,7 +30,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  basic dni, just dont be weird , ill block freely
+‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , ill block freely  }}$ 
 </h5>
 
 ‎ ‎‎ ‎ ‎ 
