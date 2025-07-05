@@ -1,14 +1,13 @@
 <h3 align="center">
-<img src="https://files.catbox.moe/7ow3d2.png"/>
+<img src="https://files.catbox.moe/hmjocz.png"/>
     </h3>
     <h3 align="center">
-<img src="https://komarev.com/ghpvc/?username=endearr&label=vistor&color=9B3834"/>
+<img src="https://komarev.com/ghpvc/?username=endearr&label=vistor&color=818CB5"/>
     </h3>
 <p align="center">
-<img src="https://files.catbox.moe/n7nt91.gif"/>
+<img src="https://files.catbox.moe/pox7uc.png"/>
     </p>
     <p align="center">
-<img src="https://files.catbox.moe/zelxpo.png"
 </p>
 
 <h5 align="center">
@@ -24,18 +23,17 @@
 <p align="center">
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/vb7whv.png"/>
+<img src="https://files.catbox.moe/6q139f.png"/>
 </p>
 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  basic dni, just dont be weird , ill block freely
 </h5>
 
-
 ‎ ‎‎ ‎ ‎ 
 </h5>
 <p align="center">
-<img src="https://files.catbox.moe/lpf8kk.jpg"/>
+<img src="https://files.catbox.moe/6q139f.png"/>
 </p>
 
 <div align="center">
@@ -43,7 +41,7 @@
 
 
 <p align="center">
-<img src="https://files.catbox.moe/gnrpx2.png"/>
+<img src=""/>
 </p>
     
 
