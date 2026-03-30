@@ -5,7 +5,7 @@
 <img src="https://komarev.com/ghpvc/?username=endearr&label=vistor&color=818CB5"/>
     </h3>
 <p align="center">
-<img src="https://files.catbox.moe/pox7uc.png"/>
+<img src="https://files.catbox.moe/moa0r6.png"/>
     </p>
     <p align="center">
 </p>
