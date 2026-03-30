@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-    <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-　taken　-　c+h encouraged, feel free!   }}$ 
+    <br> ${\textsf{\color{#9AA6C3}matt　　he him　-　taken　-　c+h encouraged   }}$ 
  <br>
     　　<a href="https://cheng-xiaoshi.atabook.org">atabook</a>　　　<a href="https://akchi.straw.page/">strawpage</a>　　 　　　 <a href="https://arab.org/click-to-help/palestine/">click</a>
      <br> ${\textsf{\color{#9AA6C3}  interactions always welcome , but im probably offtab, whisper me!     }}$ 
