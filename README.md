@@ -13,8 +13,8 @@
 <p align="center">
     <br> ${\textsf{\color{#9AA6C3}matthias　　he him　-　taken　-　c+h encouraged, feel free!   }}$ 
  <br>
-    　　<a href="https://cheng-xiaoshi.atabook.org">atabook</a>　　　<a href="https://akchi.straw.page/">strawpage</a>　　　<a href="https://rentry.org/useIessflesh/">rentry</a> 　　　 <a href="https://arab.org/click-to-help/palestine/">click</a>
-     <br> ${\textsf{\color{#9AA6C3}  interactions always welcome , but im probably offtab, whisper me!  id love you to look at these!   }}$ 
+    　　<a href="https://cheng-xiaoshi.atabook.org">atabook</a>　　　<a href="https://akchi.straw.page/">strawpage</a>　　 　　　 <a href="https://arab.org/click-to-help/palestine/">click</a>
+     <br> ${\textsf{\color{#9AA6C3}  interactions always welcome , but im probably offtab, whisper me!     }}$ 
 <br>
 </p>
 
@@ -30,7 +30,7 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , have beef with my partner (orderinthecourt),  ill block freely  }}$ 
+‎ ‎‎ ‎ ‎  <br> ${\textsf{\color{#9AA6C3}basic dni, just dont be weird , have beef with my friends,  ill block if i need to }}$ 
 </h5>
 
 ‎ ‎‎ ‎ ‎ 
