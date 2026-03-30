@@ -64,7 +64,7 @@
 
 
 
-graphics made by me, graphic art credits : @daiwild on tumblr
+graphics made by me, tumblr for the stamps
 
 
 
